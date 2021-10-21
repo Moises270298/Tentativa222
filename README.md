@@ -26,5 +26,5 @@ Conclusão
 Concluo que estou muito longe do que se esperava do exercio, mas fico feliz que em momento nenhum eu desisti , passei horas tentando entender vendo videos e fazendo pesquisas
 só que nao havia como eu de imediato relembrar o que vi ou aprender mais coisas que no primeiro momento é um bixo de sete cabeças.
 Embora saiba que foi mais um fracasso eu espero aprender com esses erros e quando aparecer outros desafios eu ja tenho uma base do que se precisa e de como é trabalhar com 
-softwares e de quanto eu preciso aperfeiçoa.
+softwares e de quanto eu preciso aperfeiçoar.
 Acabo por finalizar que hoje nao tenho condiçoes de fazer nada sozinho e nem de estar liderando a frente de um projeto.
